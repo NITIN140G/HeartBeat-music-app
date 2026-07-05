@@ -47,4 +47,3 @@ Telegram → [@NITIN140G](https://t.me/NITIN140G)
 
 ---
 
-Yeh copy-paste kar GitHub Release description mein. Fire lagega bhai 🔥
